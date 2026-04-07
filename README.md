@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-HERG900330MJCRBL01
+HERG900330MJCRBL01
